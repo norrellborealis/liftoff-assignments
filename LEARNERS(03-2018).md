@@ -42,7 +42,6 @@
 - John Kelley
 - Elizabeth Walter
 - William Krings
-- Tawnya Bailey
 - Timothy Cliffe
 - Rakiyah Faatuono
 - Robert Spicer
